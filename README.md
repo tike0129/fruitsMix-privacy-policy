@@ -1,0 +1,1 @@
+# fruitsMix-privacy-policy
